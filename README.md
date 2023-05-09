@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kritika150103@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ELEvWxDxiR7aBmpn5lqKWbf0A_L0Un-C/view?usp=share_link](https://drive.google.com/file/d/1ELEvWxDxiR7aBmpn5lqKWbf0A_L0Un-C/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ELEvWxDxiR7aBmpn5lqKWbf0A_L0Un-C/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

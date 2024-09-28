@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently **Computer Science student**
 
-- 🌱 I’m currently exploring **Game Development**
+- 🌱 I’m currently exploring **AI/ML**
 
 - 📫 How to reach me **kritika150103@gmail.com**
 
